@@ -6,10 +6,12 @@ erhalten UC und BP #GERMAN#
 erhalten UC und BP de
 erhalten UC und BP kostenlos
 
-# [Klicken Sie hier, um UC und BP generieren](https://todayinfos.us/decodmobile/?git)
+# [Klicken Sie hier, um UC und BP generieren](https://viraltrends.us/games/ac848fd?pubgde
+)
 
 
-# UC und BP Bekommen >> https://todayinfos.us/decodmobile/?git
+# UC und BP Bekommen >> https://viraltrends.us/games/ac848fd?pubgde
+
 
 
 
